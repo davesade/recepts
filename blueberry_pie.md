@@ -3,23 +3,23 @@ Blueberry pie
 
 # Preparation
 
-Baking paper
-Low round baking tray
-Bowl to prepare a dough
-Bowl to prepare a filling
+Baking paper  
+Low round baking tray  
+Bowl to prepare a dough  
+Bowl to prepare a filling  
 
 # Ingredients
 
-500g of quark
-250g of blueberries (can be frozen) - other berries and fruits are also fine (rapsberries are amazing!)
-2 large eggs
-1/2 vanilla puding
-180g of butter
-200g of oats (preferrably grinded)
-200g of grated coconut
-150g of sugar
-1 small package of vanilla sugar (cca 20g)
-pinch of salt
+500g of quark  
+250g of blueberries (can be frozen) - other berries and fruits are also fine (rapsberries are amazing!)  
+2 large eggs  
+1/2 vanilla puding  
+180g of butter  
+200g of oats (preferrably grinded)  
+200g of grated coconut  
+150g of sugar  
+1 small package of vanilla sugar (cca 20g)  
+pinch of salt  
 
 # Process
 
